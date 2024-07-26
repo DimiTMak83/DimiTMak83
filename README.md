@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DimiTMak83
+- 👀 I’m interested in Game developing
+- 🌱 I’m currently learning Unity
+- ⚡ Fun fact: IQ170+
